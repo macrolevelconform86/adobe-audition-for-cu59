@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for macOS plugin with Adobe Audition for macOS vip Plugin - proxy-editing and multi-cam-editing. Featuring proxy-editing and multi-cam-editing,
 
 
 
